@@ -1,0 +1,9 @@
+Cómo hacer que te cunda mucho estudiando poco
+
+La solución es...
+
+...blablablabla....
+
+Y con esto seréis los amos del mundo.
+
+He modificado la wiki!
